@@ -1,0 +1,2 @@
+# Ghana
+Projects involving Ghana
